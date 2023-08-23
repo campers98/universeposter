@@ -53,7 +53,7 @@ Universe Networks nu link potukanum ..
 
 Ok na ! 
 
-📔 - kurivhi vechikonga 😐
+📔 - kuruchi vechikonga 😐
 @Lochakpochak
 @Soupboy_single
 """
